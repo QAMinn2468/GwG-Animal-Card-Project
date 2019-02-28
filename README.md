@@ -1,1 +1,1 @@
-# Scholarship 2018
+# GwG Animal Card Project 2018
